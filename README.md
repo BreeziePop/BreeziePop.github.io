@@ -1,1 +1,1 @@
-My name is Brianna Lavigne
+My name is Brianna Lavigne.
